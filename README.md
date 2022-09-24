@@ -1,0 +1,2 @@
+# oybek
+yangiman
